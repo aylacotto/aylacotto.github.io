@@ -1,1 +1,0 @@
-# aylacotto.github.io
